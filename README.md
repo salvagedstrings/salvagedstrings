@@ -1,6 +1,6 @@
 *‧₊˚✩彡 heavy lefty/puppet c'link (not charlie)*
 
-**c+h always allowed and encouraged**
+**c+h always allowed and encouraged!**
 
 ───〃★
 
