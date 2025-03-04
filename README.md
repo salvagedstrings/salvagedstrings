@@ -4,7 +4,7 @@
 
 ───〃★
 
-**dni↴**
+**dni ↴**
 
 ⤷ basic dni criteria
 
@@ -12,7 +12,7 @@
 
 ⤷ i know dnis dont work, so i block/hide freely
 
-**pet peeves... iwc?↴**
+**pet peeves... iwc? ↴**
 
 ⤷ people who use fonts in important things or in chat
 
