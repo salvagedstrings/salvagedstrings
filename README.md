@@ -1,15 +1,33 @@
-WIP
-<!--
-**salvagedstrings/salvagedstrings** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*‧₊˚✩彡 heavy lefty/puppet c'link (not charlie)*
 
-Here are some ideas to get you started:
+**c+h always allowed and encouraged**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+───〃★
+
+**dni↴**
+
+⤷ basic dni criteria
+
+⤷ if youre under 13 or over 20
+
+⤷ i know dnis dont work, so i block/hide freely
+
+**pet peeves... iwc?↴**
+
+⤷ people who use fonts in important things or in chat
+
+⤷ people who use the term irl to describe a c'link/kin etc (unless you actually experience delusions, please dont use this. its disrespectful)
+
+───〃★
+
+➜  anyways! im really nice, if you want to talk to me :]
+
+⤷ usually offtab/afk, please whisper to get my attention
+
+⤷ i have asd, adhd and ocd. these affect the way i act
+
+⤷ i can be a little weird sometimes, but serious if i need to be! if i ever do/say anything that makes you uncomfortable, please let me know
+
+───〃★
+
+maybe a wip? thanks for reading!
