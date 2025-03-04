@@ -2,6 +2,8 @@
 
 **c+h always allowed and encouraged!**
 
+fnaf/dsaf fandoms int! i dont want to interact with any other fandoms, and may ignore you
+
 ───〃★
 
 **dni ↴**
