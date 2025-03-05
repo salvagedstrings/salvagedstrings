@@ -20,6 +20,8 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms, an
 
 ⤷ people who use the term irl to describe a c'link/kin etc (unless you actually experience delusions, please dont use this. its disrespectful)
 
+⤷ willry shippers
+
 ───〃★
 
 ➜  anyways! im really nice, if you want to talk to me :]
