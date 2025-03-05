@@ -2,7 +2,7 @@
 
 **c+h always allowed and encouraged!**
 
-fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms, and may ignore you
+fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ───〃★
 
