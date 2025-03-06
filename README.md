@@ -40,7 +40,7 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ⤷ lefty
 
-⤷ the marionette (fnaf and dsaf)
+⤷ the marionette (fnaf, not dsaf)
 
 ⤷ lolbit
 
