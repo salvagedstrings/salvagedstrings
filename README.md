@@ -54,6 +54,8 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ⤷ dave miller (dsaf)
 
+⤷ this is not an exhaustive list, but these change a lot, so i only listed my most "permanent" (?) ones
+
 ───〃★
 
 maybe a wip? thanks for reading!
