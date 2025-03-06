@@ -36,4 +36,21 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ───〃★
 
+**c'links/comf chars↴**
+
+⤷ lefty
+
+⤷ the marionette (fnaf and dsaf)
+
+⤷ lolbit
+
+⤷ gregory
+
+⤷ dee kennedy (dsaf)
+
+⤷ dave miller (dsaf)
+
+───〃★
+
 maybe a wip? thanks for reading!
+
