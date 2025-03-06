@@ -44,6 +44,8 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ⤷ lolbit
 
+⤷ ennard
+
 ⤷ gregory
 
 ⤷ glamrock freddy - comf
