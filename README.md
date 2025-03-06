@@ -46,6 +46,10 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ⤷ gregory
 
+⤷ glamrock freddy - comf
+
+⤷ goldenduo - comf
+
 ⤷ dee kennedy (dsaf)
 
 ⤷ dave miller (dsaf)
