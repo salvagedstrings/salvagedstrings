@@ -12,7 +12,7 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ⤷ if youre under 13 or over 20
 
-⤷ i know dnis dont work, so i block/hide freely
+⤷ i know dnis dont work, so i block/hide freely (prob will hide lefty doubles)
 
 **pet peeves... iwc? ↴**
 
