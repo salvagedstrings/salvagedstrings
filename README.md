@@ -1,8 +1,6 @@
-*‧₊˚✩彡 heavy lefty/puppet c'link (not charlie)*
+*‧₊˚✩彡 heavy lefty/puppet fictkin (not charlie)*
 
 **c+h always allowed and encouraged!**
-
-fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ───〃★
 
@@ -10,13 +8,13 @@ fnaf/dsaf fandoms int! i dont really want to interact with any other fandoms :']
 
 ⤷ basic dni criteria
 
-⤷ if youre under 13 or over 20
+⤷ if youre under 13 or over 20 (unless ik you well)
 
-⤷ i know dnis dont work, so i block/hide freely (prob will hide lefty doubles)
+⤷ i know dnis dont work, so i block/hide freely (probably will hide lefty doubles)
 
 **pet peeves... iwc? ↴**
 
-⤷ people who use fonts in important things or in chat
+⤷ people who use fonts in important things or in chat (for stylizing idrm)
 
 ⤷ people who use the term irl to describe a c'link/kin etc (unless you actually experience delusions, please dont use this. its disrespectful)
 
