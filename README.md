@@ -20,7 +20,7 @@
 
 ⤷ people who whitewash characters
 
-⤷ willry shippers
+⤷ willry shippers (proshippers dni ew ew ew. willry is on thin ice)
 
 ───〃★
 
