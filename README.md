@@ -60,3 +60,4 @@
 
 maybe a wip? thanks for reading!
 
+questioning flags n stuff, sigh. stuff might show up heree
