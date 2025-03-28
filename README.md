@@ -20,7 +20,7 @@
 
 ⤷ people who whitewash characters
 
-⤷ willry shippers (proshippers dni ew ew ew. willry is on thin ice)
+⤷ ANY fnaf shippers that arent canon (clarafton, davesport etc are CANON, whereas willry, gregevan, etc are NOT and are problematic)
 
 ───〃★
 
