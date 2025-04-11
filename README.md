@@ -8,7 +8,7 @@
 
 ⤷ basic dni criteria
 
-⤷ if youre under 13 or over 20 (unless ik you well)
+⤷ under 13 yrs (-15/20+ iwc im turning 18 in august!)
 
 ⤷ i know dnis dont work, so i block/hide freely (probably will hide lefty doubles)
 
