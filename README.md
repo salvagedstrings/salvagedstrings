@@ -33,6 +33,7 @@
 ⤷ i can be a little weird sometimes, but serious if i need to be! if i ever do/say anything that makes you uncomfortable, please let me know
 
 ⤷ i am fictionkin, a c'linker and an age regressor!
+
 ───〃★
 
 **c'links/comf chars↴**
